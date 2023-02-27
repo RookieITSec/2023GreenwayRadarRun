@@ -6,10 +6,11 @@ I have a bunch of media from the 2023 Greenway Snowmobile Club Radar Run for you
 
 360 Photo Spheres on Google Maps - 
   - https://goo.gl/maps/c9GrPrPfrpARyTKZ9
-    - Go to this link (it is google maps over the SE area of Swan Lake) and ensure you enable the pegman on the bottom right.  Then click on any of the small blue circles to see the 360 photos.  Once open, you can pan around with your finger (mobile), or click and drag on a computer.  
+  - Go to this link (it is google maps over the SE area of Swan Lake) and ensure you enable the pegman on the bottom right.  Then click on any of the small blue circles to see the 360 photos.  Once open, you can pan around with your finger (mobile), or click and drag on a computer.  
 
 360 Videos - 
-  - These videos can be moved around to see what you want to see in whatever direction.  YouTube Playlist here - https://youtube.com/playlist?list=PL1LzouABWiTsp2V30XH5mZ7LcJrDWc9r_
+  - https://youtube.com/playlist?list=PL1LzouABWiTsp2V30XH5mZ7LcJrDWc9r_
+  - These videos can be moved around to see what you want to see in whatever direction.  YouTube Playlist here 
 
 Raw Drone Videos - 
   - https://youtube.com/playlist?list=PL1LzouABWiTuJwbtE3R13fBB2GdyFNHHU
