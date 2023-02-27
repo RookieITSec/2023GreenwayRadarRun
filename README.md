@@ -15,11 +15,14 @@ I have a bunch of media from the 2023 Greenway Snowmobile Club Radar Run for you
   - https://youtube.com/playlist?list=PL1LzouABWiTsp2V30XH5mZ7LcJrDWc9r_
   - These videos can be moved around to see what you want to see in whatever direction.  YouTube Playlist here 
 
-## Raw Drone Videos - 
+## Radar Run Videos - 
   - https://youtube.com/playlist?list=PL1LzouABWiTuJwbtE3R13fBB2GdyFNHHU
+  - This is the main YouTube Playlist I will use to upload all video.  
+  - The Raw drone video is all of the drone video footage I took.  To see the photos from the drone, see the 360 photo spheres detail above as well as the Photos and misc videos in the Google Photo album below.  
 
 ## Photos and misc Videos - 
   - https://photos.app.goo.gl/J65JzVpZDQyrsa4u7
+  - This is a Google Photos album of photos wee took from the drone and photos/videos we took on phones.
 
 
 ## Combined/Editied Videos - 
