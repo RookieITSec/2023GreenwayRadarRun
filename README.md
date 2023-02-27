@@ -28,7 +28,7 @@ I have a bunch of media from the 2023 Greenway Snowmobile Club Radar Run for you
 ## Combined/Editied Videos - 
   - Trailer here - https://youtu.be/52E5e_QS6Dc
   - Clip of Scott's 103 mph run in 360 - https://youtu.be/56zwOzqJ5DI
-  - Full Complitation of videos and photos - coming soon (it will be in the same playlist as the raw drone videos above) 
+  - Full Complitation of videos and photos - coming soon (it will be in the same playlist as the Radar Run videos above) 
   
 If you have any media that I can add, please let me know!
 
